@@ -1,1 +1,1 @@
-#Welcome to Blooket Hacked
+Welcome to Blooket Hacked
